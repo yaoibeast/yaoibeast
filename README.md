@@ -3,5 +3,5 @@ too lazy to make an actual resp . Tord fictkin ~
 
 realll young ppl iwc seriously
 
-note : strawpage is outdated, i'd like 2 be
+note : get 2 know me, i'd like 2 be
 asked 4 info~
