@@ -3,5 +3,4 @@ too lazy to make an actual resp . Tord fictkin ~
 
 realll young ppl iwc seriously
 
-note : get 2 know me, i'd like 2 be
-asked 4 info~
+note : I swear alot sooooo yes its js a warning
