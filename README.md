@@ -4,3 +4,5 @@ too lazy to make an actual resp . Tord fictkin ~
 realll young ppl iwc seriously
 
 note : I swear alot sooooo yes its js a warning
+
+usually the one who approach first ik~
