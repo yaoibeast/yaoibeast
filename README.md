@@ -10,3 +10,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ HUGEㅤㅤㅤXTROVERTㅤㅤㅤㅤꪆৎ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <sub>I APPROACH FIRST<sub>ㅤㅤ<sub>A complex person/srs</sub>ㅤㅤ𐭩𐭩𐭩
+
+
+
+ㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
