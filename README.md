@@ -1,8 +1,12 @@
-<img width="248" height="248" alt="image" src="https://github.com/user-attachments/assets/7da78595-7fff-4a3b-a7b2-57452608ed48" />⠀⠀          ㅤ            ׅ      
-too lazy to make an actual resp . Tord fictkin ~
+‍󠀠ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Tordcest&label=GUILTY+PLEASURE&color=D70040)
 
-realll young ppl iwc seriously
+ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="260" height="260" alt="image" src="https://github.com/user-attachments/assets/103dfd94-d1be-44fb-8561-af8e448069b2" />
 
-note : I swear alot sooooo yes its js a warning
+ㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ-13/14ㅤㅤiwcㅤㅤ.ㅤㅤTORDCEST
 
-usually the one who approach first ik~
+ㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ[PRONOUN](https://en.pronouns.page/@Yaoibeast)ㅤㅤㅤ[ATABOOK](https://parasiticrose.atabook.org/)ㅤ—
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ HUGEㅤㅤㅤXTROVERTㅤㅤㅤㅤꪆৎ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <sub>I APPROACH FIRST<sub>ㅤㅤ<sub>A complex person/srs</sub>ㅤㅤ𐭩𐭩𐭩
