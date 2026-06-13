@@ -1,4 +1,4 @@
-‍󠀠ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Tordcest&label=GUILTY+PLEASURE&color=D70040)
+‍󠀠ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Tordcest&label=GUILTY+PLEASURE&color=#BDB5D5)
 
 ㅤㅤㅤ‍󠀠ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="260" height="260" alt="image" src="https://github.com/user-attachments/assets/8226d4f1-0087-47c5-88fa-0144edbadb94" />
 
